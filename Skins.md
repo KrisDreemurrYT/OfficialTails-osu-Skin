@@ -4,5 +4,5 @@
 ![](https://i.imgur.com/2HO837O.jpg)
 * Latest, with updated ranking panels.
 
-# [OfficialTails v1.0](https://i.imgur.com/KsCdWA7.jpg)
-![](https://i.imgur.com/y80rp6u.jpg)
+# [OfficialTails v1.0](https://mega.nz/file/rZAR3Q4b#yYdnhaqWo5yZc77kz7JDbDL3MHI_OsO1J5SnuaLQ3ew)
+![](https://i.imgur.com/KsCdWA7.jpg)
