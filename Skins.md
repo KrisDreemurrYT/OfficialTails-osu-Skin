@@ -1,7 +1,7 @@
 # OfficialTails-osu-Skin
 # Click on the skin name to install.
 
-# [OfficialTails V3.0]
+# OfficialTails V3.0
 # [HD Skin](https://officialtailsyt.s-ul.eu/y8pFxstJ)
 ![](https://imgur.com/YOh3Fm1.jpg)
 # [DT Skin](https://officialtailsyt.s-ul.eu/zDcWjUqT)
