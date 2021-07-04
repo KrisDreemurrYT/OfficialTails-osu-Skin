@@ -15,7 +15,7 @@
 # [NM + HR Skin](https://officialtailsyt.s-ul.eu/nrcuzSx2)
 ![](https://imgur.com/xmpmeuu.jpg)
 ![](https://imgur.com/kV0Fuz6.jpg)
-* Latest, minor updates made to the skin (NOTE that this skin has 4 separate .osk file extensions. NM & HR are merged.)
+* Minor updates made to the skin (NOTE that this skin has 4 separate .osk file extensions. NM & HR are merged.)
 
 # [OfficialTails V2.0](https://officialtailsyt.s-ul.eu/Xff8AQlF)
 ![](https://i.imgur.com/naO0M5r.jpg)
