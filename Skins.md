@@ -1,7 +1,7 @@
 # OfficialTails-osu-Skin
 # Click on the skin name to install.
 
-# [Kris (Deltarune) aka OfficialTails v5.0](https://officialtailsyt.s-ul.eu/WZ9kcUHA)
+# [Kris (Deltarune) aka OfficialTails v5.0](https://officialtailsyt.s-ul.eu/2cOGCxkE)
 ![](https://imgur.com/7EpQVvy.jpg)
 ![](https://imgur.com/quuqL3Z.jpg)
 * Latest. Since I have been a fan of Deltarune I wanted to make a different skin related to the main character of the video game, Deltarune. And yes, it is Kris. This skin is not a lot of effort because it's a much more simpler skin, but I may make a v2.0 of it in Q2-Q3 2022 to make it more professional. Of course, I am not a really good skinner, but still, I hope you do enjoy this skin, even if there was not much effort put to it. I have been busy with lots of stuff lately, so this is so far of what I can give. Plus the skin is not more than 20MB or so, so you should be fine when using it. I have made this skin real friendly for crappy PCs.
